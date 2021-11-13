@@ -1,0 +1,7 @@
+- Hello, I’m @ernestomorales2k 
+- I'm currently a college student working towards a bachelors in Comp Sci.
+- I’m interested in becoming a local web developer in my town as a side project while in school and for profit.
+- As for entertainment I am into a variety of things just ask and i'll tell.
+- I’m currently learning web development.
+- I’m looking to collaborate on websites for local businesses.
+- Reach me through here.
